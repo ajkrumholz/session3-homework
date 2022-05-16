@@ -1,0 +1,1 @@
+After many, many years of feeling financially insecure and dissatisfied with the work-life balance afforded by work in the world of fine dining, I'm really ready for something that puts my brain to work. I'll always have the work ethic and resilience those years taught me, but I'm hoping to find a little more peace and flexibility in this next chapter.
