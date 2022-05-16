@@ -1,0 +1,1 @@
+My favorite ever trip was to northern Spain, after flying to France to attend a wedding. I traveled alone, by bus and train, eating in some phenomenal restaurants and loving every minute of my time in the Basque country and Madrid.
